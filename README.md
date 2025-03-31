@@ -1,9 +1,5 @@
-Here's a polished introduction for your GitHub profile README:  
 
----
-
-# 👋 Hi, I'm Wardah Zafar!  
-
+# 👋 Hi, I'm Warda Zafar! 
 🌟 **Data Scientist | Psychology Enthusiast | Lifelong Learner**  
 
 ### 👀 About Me  
