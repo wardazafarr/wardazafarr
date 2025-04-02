@@ -19,13 +19,4 @@ I’m open to collaborations in:
 
 ### 📫 How to Reach Me  
 - **LinkedIn:** [Your LinkedIn Profile](#)  
-- **Email:** [moonnzafar5@gmail.com](#)  
-
-### ⚡ Fun Fact  
-I have a keen interest in **traveling** 🌍 and dream of visiting the **Amalfi Coast** one day!  
-
-🚀 Let's connect and build something amazing together!  
-
----
-
-Let me know if you’d like any modifications! 😊
+- **Email:** [moonnzafar5@gmail.com](#)    
